@@ -1,4 +1,5 @@
-## Hi there 👋
+
+![KakaoTalk_Photo_2024-01-25-22-49-31](https://github.com/Link-MIND/.github/assets/93514333/a3725099-6c76-47b6-bfef-35dc5a7bf41c)
 
 <!--
 
